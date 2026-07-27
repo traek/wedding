@@ -1,2 +1,0 @@
-# wedding
-Wedding officiating FAQ
