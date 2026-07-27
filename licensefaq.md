@@ -2,7 +2,7 @@
 # Marriage License FAQ
 [Back to Home](index.md)
 
-**UPDATED:** July 26, 2026, specific to Pinal County in Arizona
+Data current as of July 26, 2026, specific to Pinal County in Arizona
 
 ## How much does the marriage license cost?
 

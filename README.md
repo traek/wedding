@@ -1,1 +1,1 @@
-Simple website for wedding preparation
+Simple website for wedding preparation in Pinal County, Arizona
